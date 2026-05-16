@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft floor sweeper bot with ultimate nft floor sweeper bot | mint-detection + collection-scanning. Featuring mint-detection and collection-scanning, it's the best
 
 
 
